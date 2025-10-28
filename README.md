@@ -1,1 +1,2 @@
-# Claves-para-combinar-los-colores-c-lidos-como-un-profesional
+# Claves-para-combinar-los-colores-cálidos-como-un-profesional
+Antes de comenzar con las posibles combinaciones de los colores cálidos es esencial definir cuáles son aquellos colores que se encuentran dentro de esta categoría. Como regla general, un color se define como cálido o frío según la sensación de temperatura que transmiten, la cual será percibida por el ojo humano y luego decodificada e interpretada por el cerebro.
